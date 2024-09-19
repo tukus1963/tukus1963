@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **swetangshus@gmail.com**
 
-- 📄 Know about my experiences [https://www.dropbox.com/home/SWETANGSHU_RESUME?preview=SWETANGSHU_SAHA.pdf](https://www.dropbox.com/home/SWETANGSHU_RESUME?preview=SWETANGSHU_SAHA.pdf)
+- 📄 Know about my experiences [https://www.dropbox.com/home/SWETANGSHU_RESUME?preview=SWETANGSHU_SAHA.pdf]([https://www.dropbox.com/home/SWETANGSHU_RESUME?preview=SWETANGSHU_SAHA.pdf](https://www.dropbox.com/scl/fi/qsq17n2imb7173sqhz2im/SWETANGSHU-SAHA.pdf?rlkey=gxp5eo9tn3c5gbmtkpt578qg1&st=hsb46hmu&dl=0))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
